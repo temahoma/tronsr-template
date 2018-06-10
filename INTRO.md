@@ -1,1 +1,1 @@
-A short introduction about your team
+Team of young professionals
